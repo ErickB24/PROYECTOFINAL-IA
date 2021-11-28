@@ -1,3 +1,0 @@
-Erick
-Juan
-Manuel
